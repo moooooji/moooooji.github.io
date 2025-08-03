@@ -1,0 +1,2 @@
+# moooooji.github.io
+blog
